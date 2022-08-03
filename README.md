@@ -1,0 +1,4 @@
+- Eu sou **Ana Julia**; 
+- Estudo no Colegio Estadual Meneleu Almeida Torres;
+- Ponta Grossa- PR;
+- Rainha do *Reino de Hwang*;
